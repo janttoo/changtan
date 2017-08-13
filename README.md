@@ -19,19 +19,19 @@
 
 [HALOWICH](http://www.dianping.com/shop/4685286)
 
-可丽饼，甜品
+可丽饼，甜品(18RMB)
 
 [Crazy Crepes(长滩岛D'MALL店)](http://www.dianping.com/shop/5396326)
 
-美式简餐
+美式简餐(30RMB)
 
 [Supermagic](https://www.tripadvisor.cn/Restaurant_Review-g294260-d8497526-Reviews-Supermagic-Boracay_Aklan_Province_Panay_Island_Visayas.html)
 
 #### 正餐
-知乎安利-希腊火焰
+知乎安利-希腊火焰(135RMB)
 
 推荐菜：进店推荐套餐。记得点Mango shake
-我们一组4人，第一次吃了greek surf and Turf ＋paidakia+4杯芒果冰沙＝比索3880＋（约合人名币530）(精灵)吃得满足到哭泣
+我们一组4人，第一次吃了greek surf and Turf ＋paidakia+4杯芒果冰沙＝比索3880＋（约合人民币530）(精灵)吃得满足到哭泣
 
 [Cyma Greek Taverna](http://www.dianping.com/shop/3554506)
 
