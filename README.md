@@ -52,7 +52,7 @@
 
 [The Pig Out Bistro](https://www.tripadvisor.cn/Restaurant_Review-g294260-d10332829-Reviews-The_Pig_Out_Bistro-Boracay_Aklan_Province_Panay_Island_Visayas.html)
 
-老屋子调调
+老屋子调调(62RMB)
 
 [Subo Boracay](https://www.tripadvisor.cn/Restaurant_Review-g294260-d8075014-Reviews-Subo_Boracay-Boracay_Aklan_Province_Panay_Island_Visayas.html)
 
