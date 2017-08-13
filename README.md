@@ -44,7 +44,7 @@
 
 [Hawaiian BBQ Grill](http://www.dianping.com/shop/3549967)
 
-创新菲律宾菜(100RMB)
+创新菲律宾菜(100RMB) tripadvisor排名第一
 
 [Nonie's](https://www.tripadvisor.cn/Restaurant_Review-g294260-d10781731-Reviews-Nonie_s-Boracay_Aklan_Province_Panay_Island_Visayas.html)
 
